@@ -1,0 +1,1 @@
+# exvaxo_email_assets
